@@ -1,2 +1,2 @@
-# Sobreviv-ncia-online
+# Sobrevivencia-online
 Criado por be7165amm
